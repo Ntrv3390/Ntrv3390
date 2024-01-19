@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mohammedputhawala793@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1kh-zGlE7gOrjzfn3t7G_Hb-bo0abtPqZ/view?usp=sharing](https://drive.google.com/file/d/1kh-zGlE7gOrjzfn3t7G_Hb-bo0abtPqZ/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1oDpPGrszPtR6E-41vWUUenuL6HTEU0Um/view?usp=sharing](from my Resume)
 
 - ⚡ Fun fact **I think I am !Funny**
 
